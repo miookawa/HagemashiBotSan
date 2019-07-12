@@ -1,0 +1,2 @@
+# HagemashiBotSan
+はげましぼっとさんです
